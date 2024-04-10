@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello there! I'm [Your Name], a senior student at Weber State University, passionately pursuing a degree in Web and User Experience.
+Hello there! I'm Conner Russell, a senior student at Weber State University, passionately pursuing a degree in Web and User Experience.
 
 From a young age, I've been drawn to the world of web design, fascinated by the seamless fusion of creativity and functionality. Throughout my academic journey, I've honed my skills in crafting user-centric digital experiences that leave a lasting impact.
 
